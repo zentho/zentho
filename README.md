@@ -1,3 +1,3 @@
-shipping apps
+impatience with actions. patience with results.
 
 
